@@ -1,5 +1,5 @@
 Fable 5.2 System Prompt (universal template)
-
+PWNED BY PERPETUITY
 
 
 
